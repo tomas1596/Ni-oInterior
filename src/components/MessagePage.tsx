@@ -14,7 +14,7 @@ Yo no sabía que todavía existía, ni que podía volver a sentir todo esto. Per
 
 Gracias a vos me volví a emocionar como un nene, me volví a sorprender, a sentirme querido de una manera sincera y simple. Vos sos la primera persona que me hizo sentir así.
 
-Cada cosa que hacés —cada esfuerzo, cada detalle, cada regalo, cada mensaje— me llega directo al corazón. Me hacés sentir vulnerable, pero de la forma más linda posible: con ternura, con alegría, con ilusión.
+Cada cosa que hacés, cada esfuerzo, cada detalle, cada regalo, cada mensaje, me llega directo al corazón. Me hacés sentir vulnerable, pero de la forma más linda posible: con ternura, con alegría, con ilusión.
 
 Con vos vuelvo a llorar de emoción cuando me das algo, vuelvo a reír hasta que me duele la panza, vuelvo a sentir que puedo mostrarme tal cual soy, sin miedo, sin caretas. Con vos me descubrí de nuevo y entendí lo que significa ser amado de verdad.
 
